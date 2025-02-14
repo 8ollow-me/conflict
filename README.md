@@ -1,5 +1,1 @@
-안녕하세요~
-afdaadsf
-
-ddd
-hello
+내가 짱이야~!
